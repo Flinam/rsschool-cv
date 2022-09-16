@@ -1,1 +1,1 @@
-https://Flinam.github.io/rsschool-cv/cv
+https://Flinam.github.io/rsschool-cv/
